@@ -1,4 +1,4 @@
-# Head of Infrastructure @PulsarFinance | Smart Contract Developer @FujiFinance
+# Infra @PulsarFinance | SC @VelodromeFinance
 
 
 ## 🌐 Socials:
