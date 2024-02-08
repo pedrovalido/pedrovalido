@@ -1,4 +1,4 @@
-# Infra @PulsarFinance | SC @VelodromeFinance
+# SC @VelodromeFinance
 
 
 ## 🌐 Socials:
